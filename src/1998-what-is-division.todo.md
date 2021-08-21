@@ -7,7 +7,7 @@
 
 ## think as Cindy
 
-54张牌，4张一顿，能分几顿？
+54张牌，4张一堆儿，能分几堆儿？
 
 ## think as a mathematician
 
